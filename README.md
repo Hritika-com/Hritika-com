@@ -6,4 +6,3 @@
 - 📫 How to reach me: hritika.pandey@stu.ocsb.ca
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I love to cook!!
--->
