@@ -1,5 +1,5 @@
 ## Hi there 👋
-
+────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────
 - 🤔 I am currently taking Mr. J's ICS3C/U 
 - 📫 How to reach me: hritika.pandey@stu.ocsb.ca
 - 😄 Pronouns: She/Her
